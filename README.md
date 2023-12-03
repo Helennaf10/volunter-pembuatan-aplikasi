@@ -9,3 +9,5 @@ Silahkan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunteer yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id)
+* Helentia Naftaly, [Linkedin]
+* (https://www.linkedin.com/in/helen-nafta/).
